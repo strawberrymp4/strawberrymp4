@@ -1,4 +1,4 @@
-<img width="400" height="49" alt="tumblr_d8425284dbfbf201605e9cf0b69c7a38_b6fde596_400" src="https://github.com/user-attachments/assets/89b3d3bf-5ca1-4563-b875-a84dea65db68" /><img width="400" height="49" alt="tumblr_d8425284dbfbf201605e9cf0b69c7a38_b6fde596_400" src="https://github.com/user-attachments/assets/89b3d3bf-5ca1-4563-b875-a84dea65db68" />
+<img width="400" alt="tumblr_d8425284dbfbf201605e9cf0b69c7a38_b6fde596_400" src="https://github.com/user-attachments/assets/89b3d3bf-5ca1-4563-b875-a84dea65db68" /><img width="400" alt="tumblr_d8425284dbfbf201605e9cf0b69c7a38_b6fde596_400" src="https://github.com/user-attachments/assets/89b3d3bf-5ca1-4563-b875-a84dea65db68" />
 
 
 
@@ -12,9 +12,9 @@
 <img width="97" height="57" alt="tumblr_e4406d41ac11e1792000b8400057e3bb_cc4e153e_100" src="https://github.com/user-attachments/assets/12a7dc2e-9b52-40b5-a880-6f6ec5cc665b" />
 
 
-.<img width="31" height="31" alt="téléchargement" src="https://github.com/user-attachments/assets/86552d05-2ce8-4635-b1d0-63ceb0fb36c3" />
+.<img width="31" alt="téléchargement" src="https://github.com/user-attachments/assets/86552d05-2ce8-4635-b1d0-63ceb0fb36c3" />
 ☆Hai~! i'm Yuri, but i also like to be called the character i cosplay! ꩜ i'm a femboy/demi boy ꩜ i go by He/Him/Bun/Paw☆
-<img width="31" height="31" alt="Kawaii Princess" src="https://github.com/user-attachments/assets/98808b9e-1b54-4e5e-bb27-3c85ffa7a93a" />.
+<img width="31" alt="Kawaii Princess" src="https://github.com/user-attachments/assets/98808b9e-1b54-4e5e-bb27-3c85ffa7a93a" />.
 
 ⋆｡𖦹°⭒˚｡⋆
 
@@ -34,7 +34,7 @@ $\color{#FCB7E4}{\text{☆ Sharing Yumeshipper .ᐟ.ᐟ F/o's :}}$
 
 TADC, Animal hospital, DDLC, NSO , Kilari, mermaid melody, yansim, vocaloid, MLP, and more! (i forgot ok..)
 
-<img width="320" height="56" alt="willy page" src="https://github.com/user-attachments/assets/694c5855-75c3-4539-85c9-53ad47e98759" />
+<img width="320" alt="willy page" src="https://github.com/user-attachments/assets/694c5855-75c3-4539-85c9-53ad47e98759" />
 
 If you want more info click on my strawpage!! (i just struggle with github help💔)
 
@@ -44,9 +44,9 @@ $\color{#0D1117}{\text{idk how to code leave me alone voidvoivoid}}$ LINKS
 
 $\color{#0D1117}{\text{bleh}}$ $🍓STRAWPAGE🍓$ $\color{#0D1117}{\text{bleh bleh bl}}$ $📌ATA$ $BOOK📌$ wip $\color{#0D1117}{\text{bleh b}}$ $🔗ALL$ $LINKS🔗$ WIP too
 
-<a href="https://luv-jax-husband.straw.page" target="_blank" ><img width="240" height="201" alt="Animation Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/07ffb97c-2a88-43a9-b58a-c4b1175175bb"/></a>
-<a href="https://linkslinks.straw.page" target="_blank" ><img width="240" height="201" alt="Heart Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/f8396111-b6ba-45f8-9862-66da8a6067a4"/></a>
-<a href="https://linkslinks.straw.page" target="_blank" ><img width="240" height="201" alt="໒꒰ྀིっ ˕  _ ˵꒱ྀི১ ♡ - Click to view on Ko-fi" src="https://github.com/user-attachments/assets/852371cd-0291-4f78-af27-5ed7ed6440a4"/></a>
+<a href="https://luv-jax-husband.straw.page" target="_blank" ><img width="240" alt="Animation Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/07ffb97c-2a88-43a9-b58a-c4b1175175bb"/></a>
+<a href="https://linkslinks.straw.page" target="_blank" ><img width="240" alt="Heart Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/f8396111-b6ba-45f8-9862-66da8a6067a4"/></a>
+<a href="https://linkslinks.straw.page" target="_blank" ><img width="240" alt="໒꒰ྀིっ ˕  _ ˵꒱ྀི১ ♡ - Click to view on Ko-fi" src="https://github.com/user-attachments/assets/852371cd-0291-4f78-af27-5ed7ed6440a4"/></a>
 
 <img width="97" height="57" alt="tumblr_357f99a4d9204f5d64d8f27c63fabe32_a7a17875_250" src="https://github.com/user-attachments/assets/ef686e7b-c320-4b29-a3a6-9ba67cc31062" />
 <img width="97" height="57" alt="tumblr_419278a408f0c12dbd544b75ccb2a11b_577221f9_100" src="https://github.com/user-attachments/assets/81326e1e-4c73-431e-8953-0396860140fe" />
@@ -57,5 +57,5 @@ $\color{#0D1117}{\text{bleh}}$ $🍓STRAWPAGE🍓$ $\color{#0D1117}{\text{bleh b
 <img width="97" height="57" alt="tumblr_f58f6dfad034f275e8a794a817099aba_1b98ed6b_100" src="https://github.com/user-attachments/assets/60f66450-ed1d-4a12-92be-533b39351fb9" />
 <img width="97" height="57" alt="tumblr_0e00610c0e42fb68e3e8b425fb5a111c_4aebbd7c_100" src="https://github.com/user-attachments/assets/35901e4e-e19b-46dc-bc33-7a64e0e4e4ab" />
 
-<img width="400" height="30" alt="tumblr_99046e762238bd22b167b876ed036329_1443e300_400" src="https://github.com/user-attachments/assets/25820e6f-9934-4476-aef2-c52cd83e8921" />
-<img width="400" height="30" alt="tumblr_99046e762238bd22b167b876ed036329_1443e300_400" src="https://github.com/user-attachments/assets/25820e6f-9934-4476-aef2-c52cd83e8921" />
+<img width="400" alt="tumblr_99046e762238bd22b167b876ed036329_1443e300_400" src="https://github.com/user-attachments/assets/25820e6f-9934-4476-aef2-c52cd83e8921" />
+<img width="400" alt="tumblr_99046e762238bd22b167b876ed036329_1443e300_400" src="https://github.com/user-attachments/assets/25820e6f-9934-4476-aef2-c52cd83e8921" />

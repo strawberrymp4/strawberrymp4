@@ -13,7 +13,7 @@
 
 
 .<img width="31" height="31" alt="téléchargement" src="https://github.com/user-attachments/assets/86552d05-2ce8-4635-b1d0-63ceb0fb36c3" />
-☆Haii~! i'm Yuri, i'm a femboy/demi boy ꩜ i go by He/Him/Bun/Paw, i don't mind they/them thought!☆
+☆Haii~! i'm Yuri, but i also like to be called the character i cosplay!! >w< ꩜ i'm a femboy/demi boy ꩜ i go by He/Him/Bun/Paw☆
 <img width="31" height="31" alt="Kawaii Princess" src="https://github.com/user-attachments/assets/98808b9e-1b54-4e5e-bb27-3c85ffa7a93a" />.
 
 ⋆｡𖦹°⭒˚｡⋆

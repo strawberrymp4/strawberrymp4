@@ -11,4 +11,9 @@
 <img width="97" height="57" alt="tumblr_957b4433832b616bfad8512139831791_cdcd7171_100" src="https://github.com/user-attachments/assets/bdd91457-8036-4192-8327-41ba8975fff7" />
 <img width="97" height="57" alt="tumblr_e4406d41ac11e1792000b8400057e3bb_cc4e153e_100" src="https://github.com/user-attachments/assets/12a7dc2e-9b52-40b5-a880-6f6ec5cc665b" />
 
-$\color{#FFEFF8}{\text{bunny bunny}}$
+$\color{#FFEFF8}{\text{⋆｡𖦹°⭒˚｡⋆}}$
+
+$\color{#FFEFF8}{\text{☆ Sharing Yumeshipper .ᐟ.ᐟ}}$ 
+
+$\color{#0D1117}{\text{idk how to code leave me alone voidvoidvoidvoid}}$
+<img width="278" height="260" alt="Heart Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/36ec9b26-d123-4ee0-b916-b1ce748fe7ea" />

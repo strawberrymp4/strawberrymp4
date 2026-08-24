@@ -11,9 +11,51 @@
 <img width="97" height="57" alt="tumblr_957b4433832b616bfad8512139831791_cdcd7171_100" src="https://github.com/user-attachments/assets/bdd91457-8036-4192-8327-41ba8975fff7" />
 <img width="97" height="57" alt="tumblr_e4406d41ac11e1792000b8400057e3bb_cc4e153e_100" src="https://github.com/user-attachments/assets/12a7dc2e-9b52-40b5-a880-6f6ec5cc665b" />
 
-$\color{#FFEFF8}{\text{⋆｡𖦹°⭒˚｡⋆}}$
 
-$\color{#FFEFF8}{\text{☆ Sharing Yumeshipper .ᐟ.ᐟ}}$ 
+.<img width="31" height="31" alt="téléchargement" src="https://github.com/user-attachments/assets/86552d05-2ce8-4635-b1d0-63ceb0fb36c3" />
+☆Haii~! i'm Yuri, i'm a femboy/demi boy ꩜ i go by He/Him/Bun/Paw, i don't mind they/them thought!☆
+<img width="31" height="31" alt="Kawaii Princess" src="https://github.com/user-attachments/assets/98808b9e-1b54-4e5e-bb27-3c85ffa7a93a" />.
 
-$\color{#0D1117}{\text{idk how to code leave me alone voidvoidvoidvoid}}$
-<img width="278" height="260" alt="Heart Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/36ec9b26-d123-4ee0-b916-b1ce748fe7ea" />
+⋆｡𖦹°⭒˚｡⋆
+
+I have memory issues and social anxiety (｡ᵕ ◞ _◟)
+
+$\color{#0D1117}{\text{idk how to code leave me alone voidvoidvoid}}$ ⋆｡𖦹°⭒˚｡⋆
+
+$\color{#FCB7E4}{\text{☆ Sharing Yumeshipper .ᐟ.ᐟ F/o's :}}$
+
+<img width="99" height="56" alt="tumblr_117588062552a1b91210fa24b048ca31_739a8949_250" src="https://github.com/user-attachments/assets/318d215a-0d4f-4ba4-85ad-f5d91c836c0e" />
+<img width="99" height="56" alt="tumblr_df5725c8e8470980eadaea712df68173_e1ab9c12_100" src="https://github.com/user-attachments/assets/1515a97c-b194-4eb9-98a2-adcdbc66b8dd" />
+<img width="99" height="56" alt="tumblr_bb23a98cf8c65adb3b6e18be8dc580b3_5cfff70d_100" src="https://github.com/user-attachments/assets/84be5671-ad8b-4439-b2f5-a09e46a110b9" /> <--dumbass
+
+₊˚ ✧ ━━━━ ꒰ঌ ⊱ ·✦· ⊰ ໒꒱ ━━━━ ✧ ₊˚
+
+☆ Random things i like! :
+
+TADC, Animal hospital, DDLC, NSO , Kilari, mermaid melody, yansim, vocaloid, MLP, and more! (i forgot ok..)
+
+<img width="320" height="56" alt="willy page" src="https://github.com/user-attachments/assets/694c5855-75c3-4539-85c9-53ad47e98759" />
+
+If you want more info click on my strawpage!! (i just struggle with github help💔)
+
+‧˚₊•┈┈┈┈୨୧┈┈┈┈•‧₊˚⊹
+
+$\color{#0D1117}{\text{idk how to code leave me alone voidvoivoid}}$ LINKS
+
+$\color{#0D1117}{\text{bleh}}$ $🍓STRAWPAGE🍓$ $\color{#0D1117}{\text{bleh bleh bl}}$ $📌PRONOUNS📌$ wip $\color{#0D1117}{\text{bleh b}}$ $🔗ALL$ $LINKS🔗$ WIP too
+
+<a href="https://luv-jax-husband.straw.page" target="_blank" ><img width="240" height="201" alt="Animation Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/07ffb97c-2a88-43a9-b58a-c4b1175175bb"/></a>
+<a href="https://linkslinks.straw.page" target="_blank" ><img width="240" height="201" alt="Heart Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/f8396111-b6ba-45f8-9862-66da8a6067a4"/></a>
+<a href="https://linkslinks.straw.page" target="_blank" ><img width="240" height="201" alt="໒꒰ྀིっ ˕  _ ˵꒱ྀི১ ♡ - Click to view on Ko-fi" src="https://github.com/user-attachments/assets/852371cd-0291-4f78-af27-5ed7ed6440a4"/></a>
+
+<img width="97" height="57" alt="tumblr_357f99a4d9204f5d64d8f27c63fabe32_a7a17875_250" src="https://github.com/user-attachments/assets/ef686e7b-c320-4b29-a3a6-9ba67cc31062" />
+<img width="97" height="57" alt="tumblr_419278a408f0c12dbd544b75ccb2a11b_577221f9_100" src="https://github.com/user-attachments/assets/81326e1e-4c73-431e-8953-0396860140fe" />
+<img width="97" height="57" alt="tumblr_d811495248f9f15c9a84b9bbc44e4cae_0a35e8d6_100" src="https://github.com/user-attachments/assets/c4011944-db74-4883-bec5-3b6ea91c6846" />
+<img width="97" height="57" alt="tumblr_58ae9d80928e9ca7b3f73233c0d66e47_8c276a8c_250" src="https://github.com/user-attachments/assets/8932b888-5342-42d3-b9eb-91ab16d172da" />
+<img width="97" height="57" alt="tumblr_67714f48338bc5555a8eee791643d181_20b098dd_100" src="https://github.com/user-attachments/assets/a98a0e3d-31ce-420c-b1f3-cf97e4204af3" />
+<img width="97" height="57" alt="tumblr_6ca6ccdf17c1cae66bce4ab7f8dc62e7_3d372f06_100" src="https://github.com/user-attachments/assets/8684f410-dea3-4345-b434-cbd436dec710" />
+<img width="97" height="57" alt="tumblr_f58f6dfad034f275e8a794a817099aba_1b98ed6b_100" src="https://github.com/user-attachments/assets/60f66450-ed1d-4a12-92be-533b39351fb9" />
+<img width="97" height="57" alt="tumblr_0e00610c0e42fb68e3e8b425fb5a111c_4aebbd7c_100" src="https://github.com/user-attachments/assets/35901e4e-e19b-46dc-bc33-7a64e0e4e4ab" />
+
+<img width="400" height="30" alt="tumblr_99046e762238bd22b167b876ed036329_1443e300_400" src="https://github.com/user-attachments/assets/25820e6f-9934-4476-aef2-c52cd83e8921" />
+<img width="400" height="30" alt="tumblr_99046e762238bd22b167b876ed036329_1443e300_400" src="https://github.com/user-attachments/assets/25820e6f-9934-4476-aef2-c52cd83e8921" />

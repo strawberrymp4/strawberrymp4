@@ -28,7 +28,7 @@ $\color{#FCB7E4}{\text{☆ Sharing Yumeshipper .ᐟ.ᐟ F/o's :}}$
 <img width="99" height="56" alt="tumblr_df5725c8e8470980eadaea712df68173_e1ab9c12_100" src="https://github.com/user-attachments/assets/1515a97c-b194-4eb9-98a2-adcdbc66b8dd" />
 <img width="99" height="56" alt="tumblr_bb23a98cf8c65adb3b6e18be8dc580b3_5cfff70d_100" src="https://github.com/user-attachments/assets/84be5671-ad8b-4439-b2f5-a09e46a110b9" /> <--dumbass
 
-₊˚ ✧ ━━━━ ꒰ঌ ⊱ ·✦· ⊰ ໒꒱ ━━━━ ✧ ₊˚
+₊˚ ✧ ━━━━━ ꒰ঌ ⊱ ·✦· ⊰ ໒꒱ ━━━━━ ✧ ₊˚
 
 ☆ Random things i like! :
 

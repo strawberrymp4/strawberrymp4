@@ -1,3 +1,5 @@
+  Top (you)
+
 $\color{#FCB7E4}{\text{✦ SUNSHINE RAINBOWS GLITTERS BUNNY CUPCAKES PASTEL BLUSH PINK SOFT PEARLS KITTENS SILLY MERMAID BOW ✦}}$
 
 <img width="400" alt="tumblr_d8425284dbfbf201605e9cf0b69c7a38_b6fde596_400" src="https://github.com/user-attachments/assets/89b3d3bf-5ca1-4563-b875-a84dea65db68" /><img width="400" alt="tumblr_d8425284dbfbf201605e9cf0b69c7a38_b6fde596_400" src="https://github.com/user-attachments/assets/89b3d3bf-5ca1-4563-b875-a84dea65db68" />
@@ -63,3 +65,5 @@ $\color{#0D1117}{\text{bleh}}$ $🍓STRAWPAGE🍓$ $\color{#0D1117}{\text{bleh b
 <img width="400" alt="tumblr_99046e762238bd22b167b876ed036329_1443e300_400" src="https://github.com/user-attachments/assets/25820e6f-9934-4476-aef2-c52cd83e8921" />
 
 $\color{#FCB7E4}{\text{𖦹 You left me to rot ՞߹ - ߹՞ 𖦹 I miss u 𐔌՞.‸.՞𐦯 𖦹 Despite everything i still love u (¬`‸´¬) 𖦹 Will u still like me if you knew that ᵔ⤙ᵔ 𖦹 }}$
+
+Bottom (me)

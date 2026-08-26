@@ -1,4 +1,4 @@
-$\color{#FCB7E4}{\text{✦ SUNSHINE ✦ RAINBOW ✦ GLITTERS ✦ BUNNY ✦ CUPCAKES ✦ PASTEL ✦ PINK ✦ CUTE ✦ PEARL ✦ KITTEN ✦ SILLY ✦ SOFT ✦ BOW ✦}}$
+$\color{#FCB7E4}{\text{✦ SUNSHINE ✦ RAINBOWS ✦ GLITTERS ✦ BUNNY ✦ CUPCAKES ✦ PASTEL ✦ PINK ✦ CUTE ✦ PEARLS ✦ KITTENS ✦ SILLY ✦ BOW ✦}}$
 
 <img width="400" alt="tumblr_d8425284dbfbf201605e9cf0b69c7a38_b6fde596_400" src="https://github.com/user-attachments/assets/89b3d3bf-5ca1-4563-b875-a84dea65db68" /><img width="400" alt="tumblr_d8425284dbfbf201605e9cf0b69c7a38_b6fde596_400" src="https://github.com/user-attachments/assets/89b3d3bf-5ca1-4563-b875-a84dea65db68" />
 

@@ -1,8 +1,6 @@
-  Top (you)
+$\color{#FCB7E4}{\text{✦ SUNSHINE RAINBOWS GLITTERS BUNNY CUPCAKES PASTEL BLUSH PINK SOFT PEARLS KITTENS SILLY MERMAID BOW ✦}}$
 
 <img width="400" alt="tumblr_d8425284dbfbf201605e9cf0b69c7a38_b6fde596_400" src="https://github.com/user-attachments/assets/89b3d3bf-5ca1-4563-b875-a84dea65db68" /><img width="400" alt="tumblr_d8425284dbfbf201605e9cf0b69c7a38_b6fde596_400" src="https://github.com/user-attachments/assets/89b3d3bf-5ca1-4563-b875-a84dea65db68" />
-
-$\color{#FCB7E4}{\text{✦ SUNSHINE RAINBOWS GLITTERS BUNNY CUPCAKES PASTEL BLUSH PINK SOFT PEARLS KITTENS SILLY MERMAID BOW ✦}}$
 
 <img width="97" height="57" alt="tumblr_4d49d1065c145bb8b6e5e15690f86e3c_7610d885_100" src="https://github.com/user-attachments/assets/b1c92a9f-a7c3-4d8b-995a-4fc4cd2979a6" />
 <img width="97" height="57" alt="tumblr_3a36ed24c49bd5ad5e1e61b20d172d06_ce6cdef0_100" src="https://github.com/user-attachments/assets/8e328243-d0ef-4859-be78-69240f4a483d" />
@@ -59,10 +57,9 @@ $\color{#0D1117}{\text{bleh}}$ $🍓STRAWPAGE🍓$ $\color{#0D1117}{\text{bleh b
 <img width="97" height="57" alt="tumblr_f58f6dfad034f275e8a794a817099aba_1b98ed6b_100" src="https://github.com/user-attachments/assets/60f66450-ed1d-4a12-92be-533b39351fb9" />
 <img width="97" height="57" alt="tumblr_0e00610c0e42fb68e3e8b425fb5a111c_4aebbd7c_100" src="https://github.com/user-attachments/assets/35901e4e-e19b-46dc-bc33-7a64e0e4e4ab" />
 
+
+<img width="400" alt="tumblr_99046e762238bd22b167b876ed036329_1443e300_400" src="https://github.com/user-attachments/assets/25820e6f-9934-4476-aef2-c52cd83e8921" />
+<img width="400" alt="tumblr_99046e762238bd22b167b876ed036329_1443e300_400" src="https://github.com/user-attachments/assets/25820e6f-9934-4476-aef2-c52cd83e8921" />
+
+
 $\color{#FCB7E4}{\text{𖦹 You left me to rot ՞߹ - ߹՞ 𖦹 I miss u 𐔌՞.‸.՞𐦯 𖦹 Despite everything i still love u (¬`‸´¬) 𖦹 Will u still like me if you knew that ᵔ⤙ᵔ 𖦹 }}$
-
-
-<img width="400" alt="tumblr_99046e762238bd22b167b876ed036329_1443e300_400" src="https://github.com/user-attachments/assets/25820e6f-9934-4476-aef2-c52cd83e8921" />
-<img width="400" alt="tumblr_99046e762238bd22b167b876ed036329_1443e300_400" src="https://github.com/user-attachments/assets/25820e6f-9934-4476-aef2-c52cd83e8921" />
-
-Bottom (me)

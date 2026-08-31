@@ -44,7 +44,7 @@ $\color{#0D1117}{\text{idk how to code leave me alone voidvoivoid}}$ LINKS
 
 $\color{#0D1117}{\text{bleh}}$ $🍓STRAWPAGE🍓$ $\color{#0D1117}{\text{bleh bleh bleh}}$ $📌ATA$ $BOOK📌$ $\color{#0D1117}{\text{bleh b}}$ $🔗ALL$ $LINKS🔗$ WIP too
 
-<a href="https://luv-jax-husband.straw.page" target="_blank" ><img width="240" alt="Animation Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/07ffb97c-2a88-43a9-b58a-c4b1175175bb"/></a>
+<a href="https://soft-plush.straw.page" target="_blank" ><img width="240" alt="Animation Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/07ffb97c-2a88-43a9-b58a-c4b1175175bb"/></a>
 <a href="https://str4wb3rry.atabook.org/" target="_blank" ><img width="240" alt="Heart Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/f8396111-b6ba-45f8-9862-66da8a6067a4"/></a>
 <a href="https://linkslinks.straw.page" target="_blank" ><img width="240" alt="໒꒰ྀིっ ˕  _ ˵꒱ྀི১ ♡ - Click to view on Ko-fi" src="https://github.com/user-attachments/assets/852371cd-0291-4f78-af27-5ed7ed6440a4"/></a>
 
